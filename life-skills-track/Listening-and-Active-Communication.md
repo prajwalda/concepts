@@ -1,4 +1,4 @@
-```md
+
 # Communication Strategies and Listening Skills
 
 ## Question 1: What are the steps/strategies to do Active Listening?
